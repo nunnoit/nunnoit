@@ -1,4 +1,4 @@
-[![MasterHead](https://i.postimg.cc/nzP48GdW/gitbg.jpg)](https://github.com/nunnoit)
+[![MasterHead](https://i.postimg.cc/XqkFpD6g/bar3.gif)](https://github.com/nunnoit)
 
 ### Hi there 👋
 
